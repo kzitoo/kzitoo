@@ -3,7 +3,7 @@
 - 📫 How to reach me
 - Email: evanoktavianus007@gmail.com
 - Instagram: kzitoo
-- 😄 Pronouns: he/her
+- 😄 Pronouns: he/him
 
 <!---
 kzitoo/kzitoo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
