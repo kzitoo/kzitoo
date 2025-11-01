@@ -2,7 +2,7 @@
 - 👀 I’m interested in Proggraming
 - 📫 How to reach me
 - Email: evanoktavianus007@gmail.com
-- Instagram: kzitoo
+- Instagram: https://www.instagram.com/yeahevn/
 - 😄 Pronouns: he/him
 
 <!---
