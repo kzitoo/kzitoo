@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kzitoo
+- 👋 Hi, I’m Evan Oktavianus/Kzitoo
 - 👀 I’m interested in Proggraming
 - 📫 How to reach me
 - Email: evanoktavianus007@gmail.com
